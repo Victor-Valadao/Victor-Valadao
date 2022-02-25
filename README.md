@@ -6,4 +6,4 @@ I have a terrible website in google.sites: https://sites.google.com/view/victorj
 
 If you want to get in touch send me an e-mail: valadao@pos.if.ufrj.br or victorvaladao96@gmail.com.
 
-I hope I can halp you!
+I hope I can help you!
